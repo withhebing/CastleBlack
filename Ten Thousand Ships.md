@@ -27,3 +27,21 @@ of Valyria, which were woven of blood and fire. Though united by blood and
 culture and the river that had given them birth, the Rhoynish cities were
 elsewise fiercely independent, each with its own prince … or princess, for
 amongst these river folk, women were regarded as the equals of men.
+
+---
+By and large a peaceful people, the Rhoynar could be formidable when roused
+to wroth, as many a would-be Andal conqueror learned to his sorrow. The
+Rhoynish warrior with his silver-scaled armor, fish-head helm, tall spear, and
+turtle-shell shield was esteemed and feared by all those who faced him in
+battle. It was said the Mother Rhoyne herself whispered to her children of
+every threat, that the Rhoynar princes wielded strange, uncanny powers, that
+Rhoynish women fought as fiercely as Rhoynish men, and that their cities
+were protected by “watery walls” that would rise to drown any foe.
+
+For many centuries the Rhoynar lived in peace. Though many a savage
+people dwelt in the hills and forests around Mother Rhoyne, all knew better
+than to molest the river folk. And the Rhoynar themselves showed little
+interest in expansion; the river was their home, their mother, and their god,
+and few of them wished to dwell beyond the sound of her eternal song.
+
+---
