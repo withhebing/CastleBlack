@@ -58,3 +58,35 @@ ancient city of Sar Mell and the walled Valyrian town Volon Therys faced
 each other across the waters, and on the shores of the Summer Sea, where the
 Free City of Volantis soon rivaled the storied port of Sarhoy, each of them
 commanding one of Mother Rhoyne’s four mouths.
+
+Disputes between the citizens of the rival cities became ever more common
+and ever more rancorous, finally giving birth to a series of short but bloody
+wars. Sar Mell and Volon Therys were the first cities to meet in battle.
+Legend claims that the clash began when the Valyrians netted and butchered
+one of the gigantic turtles the Rhoynar called the Old Men of the River and
+held sacred as the consorts of Mother Rhoyne herself. The First Turtle War
+lasted less than a moon’s turn. Sar Mell was raided and burned, yet emerged
+victorious when Rhoynish water wizards called up the power of the river and
+flooded Volon Therys. Half the city was washed away, if the tales can be
+believed.
+
+Other wars followed, however: the War of Three Princes, the Second Turtle
+War, the Fisherman’s War, the Salt War, the Third Turtle War, the War on
+Dagger Lake, the Spice War, and many more, too numerous to recount here.
+Cities and towns were burned, drowned, and rebuilt. Thousands were killed
+or enslaved. In these conflicts, the Valyrians emerged as victors more oft than
+not. The princes of the Rhoyne, fiercely proud of their independence, fought
+alone, whilst the Valyrian colonies aided one another, and when hard-pressed,
+called upon the power of the Freehold itself. Beldecar’s History of the
+Rhoynish Wars is without equal in describing these conflicts, which stretched
+over the best part of two and a half centuries.
+
+This series of conflicts reached a bloody climax a thousand years ago in the
+Second Spice War, when three Valyrian dragonlords joined with their kin and
+cousins in Volantis to overwhelm, sack, and destroy Sarhoy, the great Rhoynar
+port city upon the Summer Sea. The warriors of Sarhoy were slaughtered
+savagely, their children carried off into slavery, and their proud pink city put
+to the torch. Afterward the Volantenes sowed the smoking ruins with salt so
+that Sarhoy might never rise again.
+
+---
