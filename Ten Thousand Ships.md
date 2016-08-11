@@ -45,3 +45,16 @@ interest in expansion; the river was their home, their mother, and their god,
 and few of them wished to dwell beyond the sound of her eternal song.
 
 ---
+When adventurers, exiles, and traders from the Freehold of Valyria began
+to expand beyond the Lands of the Long Summer in the centuries after the
+fall of the Old Empire of Ghis, the Rhoynish princes embraced them at first,
+and their priests declared that all men were welcome to share the bounty of
+Mother Rhoyne.
+
+As those first Valyrian outposts grew into towns, and those towns into
+cities, however, some Rhoynar came to regret the forbearance of their fathers.
+Amity gave way to enmity, particularly upon the lower river, where the
+ancient city of Sar Mell and the walled Valyrian town Volon Therys faced
+each other across the waters, and on the shores of the Summer Sea, where the
+Free City of Volantis soon rivaled the storied port of Sarhoy, each of them
+commanding one of Mother Rhoyne’s four mouths.
