@@ -90,3 +90,14 @@ to the torch. Afterward the Volantenes sowed the smoking ruins with salt so
 that Sarhoy might never rise again.
 
 ---
+The utter destruction of one of the richest and most beautiful of the cities
+of the Rhoyne, and the enslavement of her people, shocked and dismayed the
+53 remaining Rhoynar princes. “We shall all be slaves unless we join together to
+end this threat,” declared the greatest of them, Garin of Chroyane. This
+warrior prince called upon his fellows to join with him in a great alliance, to
+wash away every Valyrian city on the river.
+
+Only Princess Nymeria of Ny Sar spoke against him. “This is a war we
+cannot hope to win,” she warned, but the other princes shouted her down and
+pledged their swords to Garin. Even the warriors of her own Ny Sar were
+eager to fight, and Nymeria had no choice but to join the great alliance.
