@@ -101,3 +101,18 @@ Only Princess Nymeria of Ny Sar spoke against him. “This is a war we
 cannot hope to win,” she warned, but the other princes shouted her down and
 pledged their swords to Garin. Even the warriors of her own Ny Sar were
 eager to fight, and Nymeria had no choice but to join the great alliance.
+
+The largest army that Essos had ever seen soon assembled at Chroyane,
+under the command of Prince Garin. According to Beldecar, it was a quarter
+of a million strong. From the headwaters of the Rhoyne down to her many
+mouths, every man of fighting age took up sword and shield and made his way
+to the festival city to join this great campaign. So long as the army remained
+beside Mother Rhoyne, the prince declared, they need not fear the dragons of
+Valyria; their own water wizards would protect them against the fires of the
+Freehold.
+
+Garin divided his enormous host into three parts; one marched down the
+east bank of the Rhoyne, one along the west, whilst a huge fleet of war galleys
+kept pace on the waters between, sweeping the river clean of enemy ships.
+From Chroyane, Prince Garin led his gathered might downriver, destroying
+every village, town, and outpost in his path and smashing all opposition.
