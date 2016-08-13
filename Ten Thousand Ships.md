@@ -129,3 +129,19 @@ Volon Therys. Thereafter men began to name the victorious prince Garin the
 Great, and it is said that, in Volantis, great lords trembled in terror as his host
 advanced. Rather than face him in the field, the Volantenes retreated back
 behind their Black Walls and appealed to the Freehold for help.
+
+And the dragons came. Not three, as Prince Garin had faced at Volon
+Therys, but three hundred or more, if the tales that have come down to us can
+be believed. Against their fires, the Rhoynar could not stand. Tens of
+thousands burned whilst others rushed into the river, hoping that the embrace
+of Mother Rhoyne would offer them protection against dragonflame … only
+to drown in their mother’s embrace. Some chroniclers insist that the fires
+burned so hot that the very waters of the river boiled and turned to steam.
+Garin the Great was captured alive and made to watch his people suffer for
+54 their defiance. His warriors were shown no such mercy. The Volantenes and
+their Valyrian kin put them to the sword—so many that it was said that their
+blood turned the great harbor of Volantis red as far as the eye could see.
+Thereafter the victors gathered their own forces and moved north along the
+river, sacking Sar Mell savagely before advancing on Chroyane, Prince
+Garin’s own city. Locked in a golden cage at the command of the dragonlords,
+Garin was carried back to the festival city to witness its destruction.
