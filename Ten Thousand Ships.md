@@ -145,3 +145,18 @@ Thereafter the victors gathered their own forces and moved north along the
 river, sacking Sar Mell savagely before advancing on Chroyane, Prince
 Garin’s own city. Locked in a golden cage at the command of the dragonlords,
 Garin was carried back to the festival city to witness its destruction.
+
+At Chroyane, the cage was hung from the walls, so that the prince might
+witness the enslavement of the women and children whose fathers and
+brothers had died in his gallant, hopeless war … but the prince, it is said,
+called down a curse upon the conquerors, entreating Mother Rhoyne to
+avenge her children. And so, that very night, the Rhoyne flooded out of season
+and with greater force than was known in living memory. A thick fog full of
+evil humors fell, and the Valyrian conquerors began to die of greyscale.
+(There is, at least, this much truth to the tale: in later centuries, Lomas
+Longstrider wrote of the drowned ruins of Chroyane, its foul fogs and waters,
+and the fact that wayward travelers infected with greyscale now haunt the
+ruins—a hazard for those who travel the river beneath the broken span of the
+Bridge of Dream.)
+
+---
