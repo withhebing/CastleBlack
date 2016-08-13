@@ -116,3 +116,16 @@ east bank of the Rhoyne, one along the west, whilst a huge fleet of war galleys
 kept pace on the waters between, sweeping the river clean of enemy ships.
 From Chroyane, Prince Garin led his gathered might downriver, destroying
 every village, town, and outpost in his path and smashing all opposition.
+
+At Selhorys he won his first battle, overwhelming a Valyrian army thirty
+thousand strong and taking the city by storm. Valysar met the same fate. At
+Volon Therys, Garin found himself facing a hundred thousand foes, a
+hundred war elephants, and three dragonlords. Here too he prevailed, though
+at great cost. Thousands burned, but thousands more sheltered in the shallows
+of the river, whilst their wizards raised enormous waterspouts against the foe’s
+dragons. Rhoynish archers brought down two of the dragons, whilst the third
+fled, wounded. In the aftermath, Mother Rhoyne rose in rage to swallow
+Volon Therys. Thereafter men began to name the victorious prince Garin the
+Great, and it is said that, in Volantis, great lords trembled in terror as his host
+advanced. Rather than face him in the field, the Volantenes retreated back
+behind their Black Walls and appealed to the Freehold for help.
