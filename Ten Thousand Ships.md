@@ -185,3 +185,12 @@ Nymeria’s voyage was long and terrible. More than a hundred ships
 foundered and sank in the first storm her fleet encountered. As many or more
 turned back in fear, and were taken by slavers out of Volantis. Others fell
 behind or drifted away, never to be seen again.
+
+The remainder of the fleet limped across the Summer Sea to the Basilisk
+Isles, where they paused to take on fresh water and provisions, only to fall
+afoul of the corsair kings of Ax Isle, Talon, and the Howling Mountain, who
+put aside their own quarrels long enough to descend upon the Rhoynar with
+fire and sword, putting twoscore ships to the torch and carrying off hundreds
+into slavery. In the aftermath, the corsairs offered to allow the Rhoynar to
+settle upon the Isle of Toads, provided they gave up their boats and sent each
+57 king thirty virgin girls and pretty boys each year as tribute.
