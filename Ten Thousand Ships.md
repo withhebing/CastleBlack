@@ -160,3 +160,28 @@ ruins—a hazard for those who travel the river beneath the broken span of the
 Bridge of Dream.)
 
 ---
+Higher on the Rhoyne, in Ny Sar, Princess Nymeria soon received the news
+of Garin’s shattering defeat and the enslavement of the people of Chroyane
+55
+and Sar Mell. The same fate awaited her own city, she saw. Accordingly, she
+gathered every ship that remained upon the Rhoyne, large or small, and filled
+them full of as many women and children as they could carry (for almost all
+the men of fighting age had marched with Garin, and died). Down the river
+Nymeria led this ragged fleet, past ruined and smoking towns and fields of the
+dead, through waters choked with bloated, floating corpses. To avoid Volantis
+and its hosts, she chose the older channel and emerged into the Summer Sea
+where once Sarhoy had stood.
+
+Legend tells us that Nymeria took ten thousand ships to sea, searching for a
+new home for her people beyond the long reach of Valyria and its dragonlords.
+Beldecar argues that this number was vastly inflated, perhaps as much as
+tenfold. Other chroniclers offer other numbers, but in truth no true count was
+ever made. We can safely say there were a great many ships. Most were river
+craft, skiffs and poleboats, trading galleys, fishing boats, pleasure barges, even
+rafts, their decks and holds crammed full of women and children and old men.
+Only one in ten was remotely seaworthy, Beldecar insists.
+
+Nymeria’s voyage was long and terrible. More than a hundred ships
+foundered and sank in the first storm her fleet encountered. As many or more
+turned back in fear, and were taken by slavers out of Volantis. Others fell
+behind or drifted away, never to be seen again.
