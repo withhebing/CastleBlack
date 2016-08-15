@@ -222,3 +222,17 @@ woman, and child in that haunted, ruined city had vanished overnight. Then
 Nymeria summoned her people back to the ships and set sail once again.
 
 ---
+For the next three years the Rhoynar wandered the southern seas, seeking a
+new home. On Naath, the Isle of Butterflies, the peaceful people gave them
+welcome, but the god that protects that strange land began to strike down the
+newcomers by the score with a nameless mortal illness, driving them back to
+their ships. In the Summer Isles, they settled on an uninhabited rock off the
+eastern shore of Walano, which soon became known as the Isle of Women, but
+its thin stony soil yielded little food, and many starved. When the sails were
+raised again, some of the Rhoynar abandoned Nymeria to follow a priestess
+named Druselka, who claimed to have heard Mother Rhoyne calling her
+children home … but when Druselka and her followers returned to their old
+cities, they found their enemies waiting, and most were soon hunted down,
+slain, or enslaved.
+
+---
