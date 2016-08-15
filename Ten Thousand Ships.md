@@ -194,3 +194,31 @@ fire and sword, putting twoscore ships to the torch and carrying off hundreds
 into slavery. In the aftermath, the corsairs offered to allow the Rhoynar to
 settle upon the Isle of Toads, provided they gave up their boats and sent each
 57 king thirty virgin girls and pretty boys each year as tribute.
+
+---
+Nymeria refused and took her fleet to sea once again, hoping to find refuge
+amongst the steaming jungles of Sothoryos. Some settled on Basilisk Point,
+others beside the glistening green waters of the Zamoyos, amongst quicksands,
+crocodiles, and rotting, half-drowned trees. Princess Nymeria herself
+remained with the ships at Zamettar, a Ghiscari colony abandoned for a
+thousand years, whilst others made their way upriver to the cyclopean ruins of
+Yeen, haunt of ghouls and spiders.
+
+There were riches to be found in Sothoryos—gold, gems, rare woods, exotic
+pelts, queer fruits, and strange spices—but the Rhoynar did not thrive there.
+The sullen wet heat oppressed their spirits, and swarms of stinging flies spread
+one disease after another: green fever, the dancing plague, blood boils,
+weeping sores, sweetrot. The young and very old proved especially vulnerable
+to such contagions. Even to splash in the river was to court death, for the
+Zamoyos was infested with schools of carnivorous fish, and tiny worms that
+laid their eggs in the flesh of swimmers. Two of the new towns on Basilisk
+Point were raided by slavers, their populaces put to the sword or carried off in
+chains, whilst Yeen had to contend with attacks from the brindled ghouls of
+the jungle deeps.
+
+For more than a year the Rhoynar struggled to survive in Sothoryos, until
+the day when a boat from Zamettar arrived at Yeen to find that every man,
+woman, and child in that haunted, ruined city had vanished overnight. Then
+Nymeria summoned her people back to the ships and set sail once again.
+
+---
